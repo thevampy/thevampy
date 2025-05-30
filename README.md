@@ -5,6 +5,10 @@
  
 
 <p align="center">
-HEY CUTIESZ SIGN MY ATA
+HEY SIGN MY ATA
+
+<p align="center">
+  <img src="https://files.catbox.moe/q8n0iq.jpg" />
+</p>
 
 　<p align="center">[RENTRY](https://rentry.co/flounde) ★ [ATA(BOOK)](https://floortub.atabook.org/) ★ [GUNS.LOL](https://guns.lol/2ft_high)</p> 
