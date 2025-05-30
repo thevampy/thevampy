@@ -1,6 +1,6 @@
 
 
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=✦&color=E593AD)</p>
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=vote&color=E593AD)</p>
 
  
 
